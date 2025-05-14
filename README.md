@@ -4,11 +4,11 @@
 
 > 你觉得你喜欢的人也喜欢你的时候，一般是你想多了。When you think that the person you like also likes you, it's usually just you overthinking.
 
-我是 GY-GZW，一个来自长春市第四十八中学的初中生。
+我是 GY-GZW，一个来自中华人民共和国吉林省长春市第四十八中学的初中生。
 
 ## 教育背景
 
-- **初中生** 长春市第四十八中学 | 2023年至今
+- **初中生** 中华人民共和国吉林省长春市第四十八中学 | 2023年至今
 
 ## 技能
 
