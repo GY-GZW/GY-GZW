@@ -2,7 +2,9 @@
 
 ## 个人简介
 
-> 你觉得你喜欢的人也喜欢你的时候，一般是你想多了。When you think that the person you like also likes you, it's usually just you overthinking.
+> 知觉赋予感觉以意义，
+因此知觉产生的是对世界的解释，而不是对世界的完美表征。
+> Perception gives meaning to sensations, therefore what perception produces is an interpretation of the world, not a perfect representation of the world.
 
 我是 GY-GZW，一个来自中华人民共和国吉林省长春市第四十八中学的初中生。
 
