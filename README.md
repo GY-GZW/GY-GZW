@@ -40,9 +40,9 @@
 
 ## 联系方式
 
-- 📧 Email: admin@guoyuancode.dpdns.org
+- 📧 Email: admin@gystu.top
 - 🐱 GitHub: https://github.com/GY-GZW
-- 🌐 个人网站: https://guoyuancode.dpdns.org/my/#
+- 🌐 个人网站: https://gystu.top/my/
 
 ---
 
