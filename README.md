@@ -6,11 +6,11 @@
 因此知觉产生的是对世界的解释，而不是对世界的完美表征。
 > Perception gives meaning to sensations, therefore what perception produces is an interpretation of the world, not a perfect representation of the world.
 
-我是 GY-GZW，一个来自中华人民共和国吉林省长春市第四十八中学的初中生。
+我是 GY-GZW，一个来自中国吉林省长春市第四十八中学的初中生。
 
 ## 教育背景
 
-- **初中生** 中华人民共和国吉林省长春市第四十八中学 | 2023年至今
+- **初中生** 中国吉林省长春市第四十八中学 | 2023年至今
 
 ## 技能
 
