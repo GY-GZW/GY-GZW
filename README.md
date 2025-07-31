@@ -40,7 +40,7 @@
 
 ## 联系方式
 
-- 📧 Email: admin@gystu.top
+- 📧 Email: admin@email.gystu.top
 - 🐱 GitHub: https://github.com/GY-GZW
 - 🌐 个人网站: https://gystu.top/my/
 
